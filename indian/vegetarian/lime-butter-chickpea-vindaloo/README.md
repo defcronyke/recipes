@@ -4,7 +4,7 @@ by Jeremy Carter <Jeremy@JeremyCarter.ca> 2016-10-10
   
 
 This dish was created for my friends' wedding. 
-It is a vegitarian dish inspired by butter chicken, with some extra flavours to make it more interesting.
+It is a vegetarian dish inspired by butter chicken, with some extra flavours to make it more interesting.
 
 Makes 8-12 servings.  
   
