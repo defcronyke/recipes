@@ -39,7 +39,7 @@ Ingredients:
 
 (optional) 2 tsp ground coriander (for best flavour, get whole coriander and grind it right before using it)
 
-3-4 cups vegitables (I used fresh rainbow carrots and defrosted frozen broccoli), chopped into bite-sized pieces
+3-4 cups vegetables (I used fresh rainbow carrots and defrosted frozen broccoli), chopped into bite-sized pieces
 
 3 cups fresh diced tomatoes or 1 can of canned diced tomatoes (if canned, thoroughly strain the liquid out of the tomatoes)
 
@@ -64,7 +64,7 @@ Method:
 
 8. When the pan is about halfway heated (approx. 2 minutes), add the butter. If the pan was too hot, the butter will burn and it's ruined, so if this happens you'll have to reduce heat, throw out the burnt butter and try again. It's not worth it to continue if you burned the butter because it will taste wrong, so this is a good thing to make sure you get right.
 
-9. While the pan is finishing heating up, finely chop the onions, and cut up the other vegitables into bite-sized pieces. Set the vegitables aside for later.
+9. While the pan is finishing heating up, finely chop the onions, and cut up the other vegetables into bite-sized pieces. Set the vegetables aside for later.
 
 10. Add the chopped onions and cumin to the pan. When adding the cumin, for best flavour, crush it between your fingers as you're adding it. 
 
@@ -76,15 +76,15 @@ Method:
 
 14. Stir the onions and spices well until everything is mixed. At this point the pan will be getting very dry, so try to scrape off anything that's sticking to the bottom as you're stirring.
 
-15. Add your chopped vegitables to the pan, and stir well until the vegitables are fully coated in spices. The vegitables should add some moisture to the pan so things stop sticking so much, but if they are still sticking a lot, add 1 tbsp of water to the pan to help unstick everything.
+15. Add your chopped vegetables to the pan, and stir well until the vegetables are fully coated in spices. The vegetables should add some moisture to the pan so things stop sticking so much, but if they are still sticking a lot, add 1 tbsp of water to the pan to help unstick everything.
 
-16. Cook the vegitables for 5 minutes, then add the prepared chickpeas to the pan and stir well. Let it all cook for another 3 minutes.
+16. Cook the vegetables for 5 minutes, then add the prepared chickpeas to the pan and stir well. Let it all cook for another 3 minutes.
 
 17. Add diced tomatoes (make sure you strain out all the liquid first if using canned diced tomatoes). Mix it all up and cook for another 3 minutes.
 
 18. Add the whipping cream and stir. Increase the heat to about 60% (the low-end of medium-high heat), and wait until the sauce starts simmering (small bubbles rising to the top and bursting).
 
-19. Reduce heat back to medium and leave it to finish cooking for 15-30 minutes as time permits. Longer is better up to a certain point (maybe 1 hour max), but we don't want the vegitables to get overcooked. Make sure to come back and scrape off the bottom of the pan regularly so the sauce doesn't stick and burn, maybe once every 7 minutes or so.
+19. Reduce heat back to medium and leave it to finish cooking for 15-30 minutes as time permits. Longer is better up to a certain point (maybe 1 hour max), but we don't want the vegetables to get overcooked. Make sure to come back and scrape off the bottom of the pan regularly so the sauce doesn't stick and burn, maybe once every 7 minutes or so.
 
 20. Serve over rice. Enjoy!  
 
