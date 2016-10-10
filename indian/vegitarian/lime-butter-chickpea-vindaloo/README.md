@@ -1,12 +1,13 @@
 Lime Butter-Chickpea Vindaloo
-by Jeremy Carter <Jeremy@JeremyCarter.ca> 2016-10-10
 ----------
+by Jeremy Carter <Jeremy@JeremyCarter.ca> 2016-10-10  
+  
 
 This dish was created for my friends' wedding. 
 It is a vegitarian dish inspired by butter chicken, with some extra flavours to make it more interesting.
 
-Makes 8-12 servings.
-
+Makes 8-12 servings.  
+  
 
 Ingredients:
 
@@ -42,51 +43,50 @@ Ingredients:
 
 3 cups fresh diced tomatoes or 1 can of canned diced tomatoes (if canned, thoroughly strain the liquid out of the tomatoes)
 
-1 L whipping cream (yes it absolutely has to be 35% M.F. whipping cream or else it will curdle from the tomatoes and it'll be really gross, there is no appropriate substitute for this)
-
+1 L whipping cream (yes it absolutely has to be 35% M.F. whipping cream or else it will curdle from the tomatoes and it'll be really gross, there is no appropriate substitute for this)  
+  
 
 Method:
 
-Preheat oven to 375°F
+1. Preheat oven to 375°F
 
-Lay out all the cooked chickpeas in a baking dish.
+2. Lay out all the cooked chickpeas in a baking dish.
 
-Sprinkle salt and lime zest evenly over the chickpeas.
+3. Sprinkle salt and lime zest evenly over the chickpeas.
 
-Spread or pour the vindaloo paste onto the chickpeas, and then mix everything around until the chickpeas are evenly coated with paste.
+4. Spread or pour the vindaloo paste onto the chickpeas, and then mix everything around until the chickpeas are evenly coated with paste.
 
-When the oven is heated, put the chickpeas in there and roast them for 30 minutes. When they are done, remove them from the oven and set them aside, but in the meantime, get started on the rice and curry stuff.
+5. When the oven is heated, put the chickpeas in there and roast them for 30 minutes. When they are done, remove them from the oven and set them aside, but in the meantime, get started on the rice and curry stuff.
 
-Boil the 3 cups of water, add rice, reduce heat to low, and cook rice 45 minutes for brown rice, or 20 minutes for basmati rice. While you're waiting for the rice to cook, continue on with the recipe.
+6. Boil the 3 cups of water, add rice, reduce heat to low, and cook rice 45 minutes for brown rice, or 20 minutes for basmati rice. While you're waiting for the rice to cook, continue on with the recipe.
 
-Heat a very large frying pan or wok (or if you don't have one big enough, a pot will do), over medium heat.
+7. Heat a very large frying pan or wok (or if you don't have one big enough, a pot will do), over medium heat.
 
-When the pan is about halfway heated (approx. 2 minutes), add the butter. If the pan was too hot, the butter will burn and it's ruined, so if this happens you'll have to reduce heat, throw out the burnt butter and try again. It's not worth it to continue if you burned the butter because it will taste wrong, so this is a good thing to make sure you get right.
+8. When the pan is about halfway heated (approx. 2 minutes), add the butter. If the pan was too hot, the butter will burn and it's ruined, so if this happens you'll have to reduce heat, throw out the burnt butter and try again. It's not worth it to continue if you burned the butter because it will taste wrong, so this is a good thing to make sure you get right.
 
-While the pan is finishing heating up, finely chop the onions, and cut up the other vegitables into bite-sized pieces. Set the vegitables aside for later.
+9. While the pan is finishing heating up, finely chop the onions, and cut up the other vegitables into bite-sized pieces. Set the vegitables aside for later.
 
-Add the chopped onions and cumin to the pan. When adding the cumin, for best flavour, crush it between your fingers as you're adding it. 
+10. Add the chopped onions and cumin to the pan. When adding the cumin, for best flavour, crush it between your fingers as you're adding it. 
 
-Stir well until the onions are fully coated with butter and cumin. Stir regularly so the onions don't stick to the pan, and if they are sticking, add a bit more butter or about 1 tbsp of water and stir, which should make them stop sticking.
+11. Stir well until the onions are fully coated with butter and cumin. Stir regularly so the onions don't stick to the pan, and if they are sticking, add a bit more butter or about 1 tbsp of water and stir, which should make them stop sticking.
 
-You'll be cooking the onions until they go translucent and then golden. We don't want them to go dark brown, that would be overcooked. 
+12. You'll be cooking the onions until they go translucent and then golden. We don't want them to go dark brown, that would be overcooked. 
 
-Once the onions are golden, add garam masala, tumeric, paprika, chili powder, and optionally coriander if you like it. You'll want to add all this stuff in quick succession, so it helps to have it all measured out and ready ahead of time.
+13. Once the onions are golden, add garam masala, tumeric, paprika, chili powder, and optionally coriander if you like it. You'll want to add all this stuff in quick succession, so it helps to have it all measured out and ready ahead of time.
 
-Stir the onions and spices well until everything is mixed. At this point the pan will be getting very dry, so try to scrape off anything that's sticking to the bottom as you're stirring.
+14. Stir the onions and spices well until everything is mixed. At this point the pan will be getting very dry, so try to scrape off anything that's sticking to the bottom as you're stirring.
 
-Add your chopped vegitables to the pan, and stir well until the vegitables are fully coated in spices. The vegitables should add some moisture to the pan so things stop sticking so much, but if they are still sticking a lot, add 1 tbsp of water to the pan to help unstick everything.
+15. Add your chopped vegitables to the pan, and stir well until the vegitables are fully coated in spices. The vegitables should add some moisture to the pan so things stop sticking so much, but if they are still sticking a lot, add 1 tbsp of water to the pan to help unstick everything.
 
-Cook the vegitables for 5 minutes, then add the prepared chickpeas to the pan and stir well. Let it all cook for another 3 minutes.
+16. Cook the vegitables for 5 minutes, then add the prepared chickpeas to the pan and stir well. Let it all cook for another 3 minutes.
 
-Add diced tomatoes (make sure you strain out all the liquid first if using canned diced tomatoes). Mix it all up and cook for another 3 minutes.
+17. Add diced tomatoes (make sure you strain out all the liquid first if using canned diced tomatoes). Mix it all up and cook for another 3 minutes.
 
-Add the whipping cream and stir. Increase the heat to about 60% (the low-end of medium-high heat), and wait until the sauce starts simmering (small bubbles rising to the top and bursting).
+18. Add the whipping cream and stir. Increase the heat to about 60% (the low-end of medium-high heat), and wait until the sauce starts simmering (small bubbles rising to the top and bursting).
 
-Reduce heat back to medium and leave it to finish cooking for 15-30 minutes as time permits. Longer is better up to a certain point (maybe 1 hour max), but we don't want the vegitables to get overcooked. Make sure to come back and scrape off the bottom of the pan regularly so the sauce doesn't stick and burn, maybe once every 7 minutes or so.
+19. Reduce heat back to medium and leave it to finish cooking for 15-30 minutes as time permits. Longer is better up to a certain point (maybe 1 hour max), but we don't want the vegitables to get overcooked. Make sure to come back and scrape off the bottom of the pan regularly so the sauce doesn't stick and burn, maybe once every 7 minutes or so.
 
-Serve over rice. Enjoy, and let me know how you like it. If you modify it or use it as a base for
-another dish, I'd love to see some modified versions of this recipe.
+20. Serve over rice. Enjoy!  
 
 ----------
 
@@ -94,8 +94,8 @@ Vindaloo Paste:
 
 Okay well this is not really vindaloo paste, but it will add the right flavours to the above dish if you want to make everything from scratch.
 
-Makes enough to use in the above dish.
-
+Makes enough to use in the above dish.  
+  
 
 Ingredients:
 
@@ -103,14 +103,14 @@ Ingredients:
 
 2 tbsp brown sugar
 
-2 tbsp white vinegar
-
+2 tbsp white vinegar  
+  
 
 Method:
 
-In a small bowl, add the fenugreek, brown sugar, and white vinegar.
+1. In a small bowl, add the fenugreek, brown sugar, and white vinegar.
 
-Mix well. That's it.
+2. Mix well. That's it.  
 
 ----------
 
