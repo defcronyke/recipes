@@ -1,6 +1,6 @@
 Lime Butter-Chickpea Vindaloo
 ----------
-by Jeremy Carter <Jeremy@JeremyCarter.ca> 2016-10-10  
+by [Jeremy Carter](http://eternalvoid.net) <[Jeremy@JeremyCarter.ca](mailto:Jeremy@JeremyCarter.ca)> 2016-10-10  
   
 
 This dish was created for my friends' wedding. 

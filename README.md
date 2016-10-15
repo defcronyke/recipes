@@ -1,2 +1,2 @@
 # Recipes
-Food recipes by Jeremy
+Food recipes by [Jeremy](http://eternalvoid.net).
