@@ -1,0 +1,1 @@
+Food recipes containing cannabis, by [Jeremy](http://eternalvoid.net).
